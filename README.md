@@ -17,7 +17,7 @@
 
 点击访问：<a href="https://cg25-4.pages.dev/">5TikTok成人版</a>
 
-点击访问：<a href="https://cg70-1.pages.dev/>51吃瓜</a>
+点击访问：<a href="https://cg70-1.pages.dev/">51吃瓜</a>
 
 点击访问：<a href="https://hl454.pages.dev/">今日黑料</a>
 
